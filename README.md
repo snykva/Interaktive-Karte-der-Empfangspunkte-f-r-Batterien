@@ -1,1 +1,1 @@
-# Interaktive-Karte-der-Empfangspunkte-f-r-Batterien
+# Interaktive Karte der Empfangspunkte für Batterien
